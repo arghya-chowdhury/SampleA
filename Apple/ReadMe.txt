@@ -1,1 +1,1 @@
-Hi, I'm Apple. I'm Royal Gala Apple.
+Hi, I'm Apple. I'm Royal Gala Apple. I'm from Norway.
