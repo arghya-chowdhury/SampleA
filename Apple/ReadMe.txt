@@ -1,1 +1,1 @@
-Hi, I'm Apple.
+Hi, I'm Apple. I'm Royal Gala Apple.
